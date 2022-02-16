@@ -1,0 +1,13 @@
+- 👋 Hi, I’m @douglasbolden
+
+- 👀 I’m interested in ...
+Music, Programming, Games, and Enjoying Life!
+
+- 🌱 I’m currently learning ...
+Everything that I can.
+
+- 💞️ I’m looking to collaborate on ...
+Anything!
+
+- 📫 How to reach me ...
+douglas.bolden@ymail.com
